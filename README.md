@@ -162,6 +162,8 @@ Since he interacts with the microwave a lot so he uses it daily and our App will
 ![image](https://user-images.githubusercontent.com/66685640/88792359-8aba3900-d1b4-11ea-85f1-b02a0ebd6f18.png)
 ![image](https://user-images.githubusercontent.com/66685640/88792345-855cee80-d1b4-11ea-8f8b-a5fea3234188.png)
 ![image](https://user-images.githubusercontent.com/66685640/88792330-7fffa400-d1b4-11ea-94c0-63408cfae756.png)
+![image](https://user-images.githubusercontent.com/66685640/88793020-99552000-d1b5-11ea-83b9-b8d83bcf9f6e.png)
+![image](https://user-images.githubusercontent.com/66685640/88793041-9eb26a80-d1b5-11ea-9edd-5e684d1c525e.png)
 
 
 
